@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Pichulu I am new and I know a little coding and I just want to help.
+- 👀 I’m interested in Roblox stuff.
+- 🌱 I’m currently learning coding physics.
+- 💞️ I’m looking to collaborate on somthing big. 
+- 📫 I will not be avablie during the week.
